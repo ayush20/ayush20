@@ -18,7 +18,7 @@
 
 - 😁 Fun Fact: **Jack of all trades , Master of None !**
 
-- 📫 How to reach me: ayush@greckle.io
+- 📫 How to reach me: ayugupta.jpr@gmail.com
 
 - 👨‍💻 All of my projects are available at [Github](https://github.com/ayush20)
 
